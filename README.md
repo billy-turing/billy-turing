@@ -5,7 +5,6 @@
 
 - 📫 You can reach me at **billyturing@mailfence.com**
 
-- ⚡ Fun fact **I think I am funny :)**
 
 <p align="left">
 </p>
